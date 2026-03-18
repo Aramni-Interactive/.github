@@ -1,10 +1,10 @@
 # Aramni Interactive
 
 ## Our Vision
-The Benchmark of Imagination.
+To be the studio that proves imagination can build lasting empires.
 
 ## Our Mission
-To create worlds of rebirth and imagination, where every experience connects and inspires beyond limits.
+To create imaginative worlds and experiences that connect people and inspire them beyond limits.
 
 ## Our Value
 ### Build Worlds <br>
